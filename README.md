@@ -1,4 +1,4 @@
- 📫 How to reach me ... Emai:- nafisf026@gmail.com
+ 📫 How to reach me ... Email:- nafisf026@gmail.com
 
 <!---
 NafisFuadTanvir/NafisFuadTanvir is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
